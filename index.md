@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. -Marcus Aurelius
